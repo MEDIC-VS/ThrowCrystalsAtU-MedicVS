@@ -3,4 +3,4 @@
 - 🃏 Pronouns: They/them
 - 🌌 you may see this on my PonyTown
 - 🌹 Check more on link! more information in there
-https://rentry.co/SkylerIntrosd=true
+https://rentry.co/SkylerOrKesterIntro
